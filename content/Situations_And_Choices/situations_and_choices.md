@@ -1,0 +1,89 @@
+Title: Situations and Choices: The Sum of Our Life as We Experience It
+Date: 2018-07-03 10:00
+Modified: 2018-07-03 10:00
+Category: philosophy
+Tags: philosophy
+Slug: situations-and-choices
+Authors: Gregory Alonge
+
+<br>
+<i><p align="center">“If the people of the world are plunged into yet another world war, the result will be that the Jews will take over even more” (Hitler, Jan 31st, 1941, right before Germany declared war on the Soviet Union).</p><i/>
+ 
+As the existentialist Jean-Paul Sartre sees it, life centers around the choices we are free to make, and the situation from which we make those choices.  A Sartrean situation is the amalgamation of uncontrollable circumstances a person finds herself in, like her age, height, and yes, race.  According to the French philosopher and playwright, a human being is her situation, combined with her choices.  Each choice she is presented with is an opportunity to create her path and shape her future from within her given situation.  But once she makes a choice, her decision is spot welded into her fixed situation.  All people choose what they want their lives to look like based on what their lives are not, and they choose their futures within the confines of their situation[1].  For example, the anti-Semite chooses to experience the world-view of a racist; and his situation—his age, genetic code, etc.—is incidental.  In his thrashing 1945 book, Anti-Semite and Jew, Sartre chooses to focus on the choices the anti-Semite makes, and the experience that follows from those choices.  Each decision rendered, effects ourselves, those around us, and the society at large, thus exposing the immense responsibility, and anguish[2] of life.
+
+For us to understand the chosen experience of the anti-Semite, we must first understand how the racist sees others around him.  We must uncover how he looks at the people in his frame of view at any one moment.  For Sartre, a large part of our situation is defined by how we are gazed upon, so, when the anti-Semite looks at a person, he, like everybody else, is partially determining that person’s situation.  If looked upon as Jewish, you are in the situation of a Jew.  If seen as black, you are in the situation of a black person.  The anti-Semite, who has chosen to scan for Jews and outsiders, looks out into the world and identifies a figure.  He then decides: Jew, or not Jew—one is either or.  Immediately thereafter, he deciphers: Frenchman, or not Frenchman—one is either or.  The bigot polarizes his vision via a black and white lexicon.  One of good vs. evil, Jew vs. non-Jew.  He evaluates with the nonsense of intuition, and stupidity of hatred and anger.  A ‘logic of passion.’  
+	
+A passion of cowardice he has chosen for himself and indulged to the fullest extent.  All passions are choices, but most are positive, like love and art.  The passion of anti-Semitism, on the other hand, is a negative passion of hatred, destruction, and rejection.  The racist’s negation assuages his hatred and justifies the mediocrity he has also chosen.  He has full control over his passion, as choices are tractable.  A member of the herd, the anti-Semite elects to be average, and thus takes refuge in comfort and ease.  His passion for mediocrity depends on his choice to be solid, stupid and stone-like.  Impenetrable and irrational to the point of delusion; because to be flexible, would require self-reflection—the very reflection he flees.  In choosing this experience, he runs away from his own contingency and responsibility.  He runs and hides from the fact that the world which does not need him, still requires responsibility of the choices thrust upon him.  In the reflection of the world’s indifference, the anti-Semite looks upon himself most vividly, and in his clairvoyance, chooses to deny.  He flees his consciousness, and thus existence[3].  He chooses to negate all other choices.  The cowardly racist denies himself, and in so doing, denies humanity—alas!  He still cannot escape the very anguish he originally fled.  He is a fearful and trembling[4] profile of his own shadow soaked in ressentiment[5].
+ 
+While falling into the abyss, the anti-Semite experiences the true indifference of the society.  He chooses to construct his own society in a fashion that accommodates his escape.  He chooses aristocracy.  This affords him free-superiority.  He has reified his status and encased it in a magical and timeless forcefield.  His preference for pre-revolution ways protects his mediocrity, and most importantly, his fearful escape from contingency and responsibility.  He chooses to construct a ‘pure’ and ‘righteous’ society, granting him the excuse to alienate and otherize.  His social construction is the barbiturate consciously taken to treat the anguish—the anguish that Sartre puts front and center throughout all his work.
+
+After picking up and absorbing Sartre’s Jew, the Martinican, Frantz Fanon, was inspired to write his own book in 1952, entitled, Black skins, White Masks.  In chapter five, “The Lived Experience of the Black Man,” instead of focusing on the choices a person makes as Sartre’s had, Fanon, focuses on the horrifying phenomenology of the black man.  His blackness induces this dreadful consciousness, which can only be excised with a full peel back of the skin from the flesh.  A white mask will not suffice.  The horrifying nature of the black man’s situation places it in the foreground of his lived experience.  Thus, Fanon redefines ontology as a structure shaped by the Sartrean look, which imposes a wretched lived experience and lays the stage for the choices we need to make freely.  Therefore, Fanon’s existence is dictated by an apparatus built from his oppressed situation.  This apparatus projects distinct looks onto him, which force him to choose his actions in the face of these hallucinogenic visuals.  This myopic schema comprises the lived experience of Frantz Fanon. 
+ 
+The first look that Fanon receives as a black man is the white gaze.  It is a look of racism, which dehumanizes the colonized body, and dehumanizes Fanon with his penetrating gaze that objectifies[6], robbing him of the meaning he covets. 
+Now, flayed open by the scalpel of the Eyes and exposed to the torrid radiation of the white gaze, his carcass is re-animated with savagery, cannibalism, fetishism and gaping white eyes.  The white man paints a grin on the wretched formation.  A shriek from the Other: 
+“He’s scaring me, mama!” 
+The white mass increases their distance but continues to stare.  Sensing solitude, Fanon hits the ground.  Manifest flesh and sinew covered by his own shadow—his back burns in the sun.  He shivers as he broils.  He chokes on the breathing room.  He sees the comedy and lives the tragedy.  The crowd stands at a distance, looking upon the figure with consternation, who collapses.  The crowd bolts, and once gone, the vultures circle overhead.
+A lone woman enters Fanon’s field of perception.  Their eyes fasten—this look is different from the one the crowd had offered.  She comes over, picks him up off the ground, and helps him lick his wounds. 
+“You see!”  She says, “Just because you’re a handsome Negro is no reason to fear you.” 
+“The handsome Negro says, ‘Fuck you,’ Madame” (94). 
+Her countenance tightens.  His blackness shouts through her vision—he sees her seeing it.  She runs away with the rest of them, and Fanon hits the ground again, but this time harboring a guttural roar.  Alone again, night descends, and he looks over himself.  One must imagine Fanon happy.[7]
+
+He starts back for the town but knows that his undeniable blackness will spot him in a hurry.  He sees a Jewish brother crawling past.  The strophe calls out:
+
+“Brother.  Won’t they see you?” 
+“Maybe.”  The antistrophe calls back. 
+“What about me?” 
+“You?  You are black.” 
+
+Fanon retreats and finds a wide gorge with rock enclaves splintering the earth.  Shelter for the evening.  There, he sees three other black men.  Not in person, but their thetics on the escarpments.  Written in a blue brought from the ocean and red risen from the earth, it reads: ‘Négritude.’  Fanon looks at the missives.  He reads, dissects, and rereads them.  Backward.  He is distrustful.  These colorful words look back at him in yet a third distinct fashion.  His eyes wide open and feet bare on the terrain, an empyreal rhythm establishes between him, the paints, and cosmos.  Grounded and free.  Mind and body reunified—this experience is compelling.  The poetic opium stirs his passion.  “This! —is verse.”  A sensitive verse yet to breathe warm air into the cold and cataloged nitrogen, oxygen, and argon of the library in town.  He knew it was black poetry, written by black people, for black people.  Prose gazing upon him—he chooses pride, staring straight into the paint’s eyes.  He chooses superiority.  Affirms his blackness.  All the culture negated can now be accepted.  Again, the night fell, exposing himself to himself in the mirror of the void.  Strength peaked, tomorrow, he would venture back into town and share his dream.[8]
+
+The next dawn, with a new sun and rejuvenating experience, Fanon leaves the comforting shelter of négritude and makes his way down the exposed tundra back for town.  The slight chill on his back signals both a drop in altitude; and a man with a lazy-eye, black spectacles, and black book in hand sitting near a stone.  It was Sartre, who immediately stares into Fanon’s eyes with a fourth, penetrating gaze that freezes him in his tracks.  The gaze sounds the depths of the unified mind-body schema.  He scowls back and attempts to carry on, but Sartre blocks his path.  Standing there, he opens the book which has the word ‘Orpheus,’ inscribed on it, and says:
+
+>I have been to the massif you return from, and oh what a beautiful rock it is.  What colors and rhythms and prose!  You will go back into town, and tell them of the fracture the canyon carves, and indeed, they will see you.  They may even see you differently.  But alas!  Remember, that your antithesis will be quartered and drawn for the fulfillment of the necessary Promethean Synthesis!  After tirelessly separating each limb from your corpus, they will drag your entrails along the cobblestone road out of town for everyone to see your destruction fade into the horizon, and they will see—your solubility.
+
+Fanon gapes ahead as Sartre carries on,
+  I remember when I was naive like you.  One day, you will come to understand as I did, my boy.”
+  
+Fanon stands up, and on two solid feet, shouts back at him:
+
+“White man!  In the midst of battle, the soldier cannot contemplate the war!”  
+
+Just moments before, he had been unbridled and celestially impulsive.  Now, he could
+feel the weight mounting on his feet.  The white Frenchman stares unflinchingly into Fanon’s fractured unity.  Still on his feet, he continues forward, down into the swampy town shouting:
+
+“Fuck you, Sartre!  I needed not to know!”
+
+Just outside town, a drunken vagrant in an old shivering wheelchair, bitterly calls out to catch the fast-paced Fanon’s ear:
+
+“Heyh!  Doan chu know?  Their gonna to do to yew what they di’ tah meh!  ‘We are both casualties”’ (119).
+
+Fanon evades the derelict eyes and hurries his pace.  His inner orb focusing on the astral-terra synesthesia, he stops, tilts his eyes closed to the sky, and shouts from his knees:
+
+“I will turn over each element of the cosmos before I concede!”
+
+<br>
+<hr>
+<hr>
+<br>
+
+<sub>1. “We are what we are not, and we are not what we are.”</sub>
+
+<sub>2. “The existentialists say at once that man is anguish.  What that means is this: the man who involves himself and realizes that he is not only the person he chooses to be, but also a lawmaker who is, at the same time, choosing all mankind as well as himself, cannot help escape the feeling of his total and deep responsibility” (Marino 347, excerpt from Existentialism is a Humanism).  Definite echoes of Kant’s 1st form categorical imperative.</sub>
+
+<sub>3. He doesn’t lack *bewusstsein* in the Marxian sense. Rather, he runs away from it because he is afraid, and thus has chosen to be a coward.</sub>
+
+<sub>4. Fear and Trembling (1843) Søren Kierkegaard, widely seen as father of existentialism.</sub>
+
+<sub>5. “...slave morality from the outset says No to what is “outside,” what is “different,” what is “not itself”...this need to direct one’s view outward instead of back to oneself—is the essence of ressentiment…” (Ch. 10 On the Genealogy of Morals, Nietzsche)</sub>
+
+<sub>6. The white gaze violates Kant’s 2nd form categorical imperative.</sub>
+
+<sub>7. “One must imagine Sisyphus happy.”</sub>
+
+<sub>8. I woke this morning with my mind</sub>
+
+<sub>Set on Freedom.</sub>
+
+<sub>Hallelu, Hallelu, Hallelujah!	-One of the gospel hymns that rang out as marchers on Washington poured out of their trains and buses in 1963, to see Dr. King Jr. tell the people, about his dream. (Hansen The Dream 34)
+</sub>
+
